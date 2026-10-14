@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on any beginner-friendly python projects 
 - 📫 How to reach me - jenniferagu.aj@gmail.com
 - 😄 Pronouns: she/her.
-- ⚡ Fun fact: i am a Gemini sun Aries moon 
+- ⚡ Fun fact: i am a Gemini sun Aries moon.
