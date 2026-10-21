@@ -1,1 +1,1 @@
-
+Report dealing with the controversy concerning applications of genetic modification, public opinion and perception and politics involved in the implementation of genetic modification. Also reviews opinions which are currently debated in the food biotechnology sector regarding human health and ecology.
